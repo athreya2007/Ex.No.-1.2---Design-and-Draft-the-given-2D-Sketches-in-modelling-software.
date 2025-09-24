@@ -36,7 +36,7 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
- ![Uploading EXP 2_page-0001.jpg…]()
+![EXP 2_page-0001](https://github.com/user-attachments/assets/820f7c14-79c2-4e0d-a9bc-9e4c49daf1f3)
 
  
  ## RESULT
